@@ -1,6 +1,6 @@
 # Memories
 
-![Memories](https://ibb.co/CchFQYR)
+![Memories](https://deepanshu-thakur.imgbb.com/)
 
 ## Introduction
 
