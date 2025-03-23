@@ -1,6 +1,6 @@
 # Memories
 
-![Memories](https://ibb.co/CchFQYR)
+![Memories](https://i.ibb.co/h6DvV43/Screenshot-2025-03-23-at-1-43-33-PM.png)
 
 ## Introduction
 
